@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me
 🔭 Proactive<br>⚡ Looking for new challenges<br>💬 Upper-intermediate english<br>🤝 Excellent in research tasks
 
 
